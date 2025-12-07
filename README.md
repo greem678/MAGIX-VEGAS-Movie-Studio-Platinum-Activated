@@ -1,0 +1,1 @@
+# MAGIX-VEGAS-Movie-Studio-Platinum-Activated
